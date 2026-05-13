@@ -1,4 +1,4 @@
-#  
+#  Experience driving empire like never before with premium driving empire Script, the #1 Script. Includes auto-collect and invisibility for unbeatable
 
 
 
